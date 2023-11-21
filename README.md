@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hoanggiakz
 - 👀 I’m interested in swimming
 - 🌱 I’m currently learning about techchology
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on instagram.
 - 📫 How to reach me Instagram: _h.giaa
 
 <!---
